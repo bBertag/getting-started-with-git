@@ -1,1 +1,1 @@
-Logan is a nerd bucket sandwhich that never gets pie for free.
+Logan is just a big nerd!
